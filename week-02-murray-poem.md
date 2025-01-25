@@ -1,24 +1,14 @@
-The internet was once a box in our homes,
-
-a desktop shared with family.
+The internet was once a box in our homes, a desktop shared with family.
 
 
-What once was static is now all-consuming,
-
-from smartwatches to phones that never stop.
+What once was static is now all-consuming- from smartwatches to phones that never stop.
 
 
-Lost in the potential of interactive worlds,
-
-we overlook how immersed we really are. 
+Lost in the potential of interactive worlds, we overlook how immersed we really are. 
 
 
 
-In the rush to engage, we forget-
-
-how we turned from passive consumers,
-
-to active participants,
+In the rush to engage, we forget how we turned from passive consumers,to active participants,
 
 to entangled prisoners of the screen.
 
