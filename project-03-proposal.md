@@ -6,3 +6,6 @@ The Genie offers her a wish- she decides if swhe wants it granted
 Once the Genie gives her the wish she turns into a cat 
 She decides if she wants to run to a shelter to get adopted or be a wild cat and explore 
 Those are some of my initial ideas
+
+
+ok so i didnt do this at all i made it based off of Sav in out class she was a green jelly monster she thought it was silly
